@@ -2,3 +2,4 @@
 - 👀 I’m interested in something interesting <3
 - 📫 How to reach me:
         Telegram - @baxynet
+        Discord - resilient#0859
